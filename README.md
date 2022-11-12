@@ -114,3 +114,7 @@
     Done Simplify
     Original PATH = LLBRLLBSRLLBLBLBLLL | Simplify PATH = SRRSL
   ```
+
+### Saran tangapan dan komentar
+
+[IG Makrus Ali](https://instagram.com/makrus.ali_)
